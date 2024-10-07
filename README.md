@@ -8,3 +8,4 @@
 ![godzilla-slide](https://github.com/user-attachments/assets/49659cb6-3d6a-4d79-88b3-9e8359bb77c2)
 ![godzilla-vs-ultraman-ultraman](https://github.com/user-attachments/assets/d9426f03-5940-48d4-863f-f8d2039765e5)
 ![mojang-minecraft](https://github.com/user-attachments/assets/ab58fee1-e5ae-4644-9743-c47c92b57e55)
+![the-man-in-the-suit-incident-scary](https://github.com/user-attachments/assets/ab00f5de-0485-4408-ac64-86d620269094)
