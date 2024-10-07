@@ -6,5 +6,5 @@
 ![fnaf-sturdy](https://github.com/user-attachments/assets/8791e151-1e39-40ee-b170-75bcefc8d934)
 ![into-the-pit](https://github.com/user-attachments/assets/7be0936f-161e-4b4b-b108-14fdfa840f18)
 ![godzilla-slide](https://github.com/user-attachments/assets/49659cb6-3d6a-4d79-88b3-9e8359bb77c2)
-![godzilla-thanos](https://github.com/user-attachments/assets/dab90c85-d3b4-4e30-af71-c6e89c78c487)
 ![godzilla-vs-ultraman-ultraman](https://github.com/user-attachments/assets/d9426f03-5940-48d4-863f-f8d2039765e5)
+![mojang-minecraft](https://github.com/user-attachments/assets/ab58fee1-e5ae-4644-9743-c47c92b57e55)
